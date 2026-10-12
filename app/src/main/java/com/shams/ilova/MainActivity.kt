@@ -1,0 +1,1 @@
+toʻydan taklifnoma
